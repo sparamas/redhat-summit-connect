@@ -21,7 +21,6 @@
 ![Library - 19 of 32](https://user-images.githubusercontent.com/13231217/192685372-60902a09-d8e0-4158-8bd2-b6989c825e59.jpeg)
 
 
-https://user-images.githubusercontent.com/13231217/192685373-66fd026e-dc96-464c-9160-8642ffb0665f.mov
 
 ![Library - 23 of 32](https://user-images.githubusercontent.com/13231217/192685374-ccf51e6e-6075-47b0-bfc5-4a237a8d52ea.jpeg)
 ![Library - 24 of 32](https://user-images.githubusercontent.com/13231217/192685375-94ababeb-f987-4eb1-b465-f118ac809877.jpeg)
